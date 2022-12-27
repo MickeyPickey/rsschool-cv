@@ -1,1 +1,1 @@
-# rsschool-cv
+https://MickeyPickey.github.io/rsschool-cv/cv
